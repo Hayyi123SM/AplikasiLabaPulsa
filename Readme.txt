@@ -1,0 +1,1 @@
+Mudahan - mudahan Kami tidak malas dalam mengerjakan project ini
